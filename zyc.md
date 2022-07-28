@@ -434,7 +434,7 @@ D：哦。
 
 全文共9516+字。
 
-在2022.7.30日更新《张一川传》完毕。
+在2022.7.28日更新《张一川传》完毕。
 
 **Copyright © 2022 颠倒空格的个人网站 All Rights Reserved.**   [反馈](https://diandaokongge.github.io/fdbk)
 
